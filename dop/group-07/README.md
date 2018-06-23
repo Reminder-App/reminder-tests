@@ -1,3 +1,3 @@
-# Group 9
+# Group 7
 - Vitor
 - Frederico
